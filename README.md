@@ -1,0 +1,1 @@
+# qvizi-1-varianti-1
